@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with AI-powered perpetual trading bot Utility | trailing-stop + leverage-management, the #1 perpetual trading bot. Includes trailing-stop and
 
 
 
